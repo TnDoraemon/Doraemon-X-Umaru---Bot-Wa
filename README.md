@@ -1,2 +1,1 @@
-# Doraemon-X-Umaru---Bot-Wa
-Bot Wa
+# Bot ini digunakan yang baik ya tod
